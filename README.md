@@ -1,1 +1,4 @@
 # Monthly-Checklist
+
+
+An essential lifeline for international students, a monthly checklist supports their academic, private, and practical goals while studying abroad. The difficult burden of juggling academic obligations, cultural adjustment, money management, and adherence to immigration and legal requirements is one that these students frequently encounter. The checklist not only keeps them organised but also gives them the tools they need to succeed academically, stay compliant with their visas, handle their finances wisely, embrace a new culture, and place a high priority on health and wellness. Along with building readiness for safety and emergencies, it also encourages students to investigate options for personal improvement like networking and job development. An all-inclusive monthly checklist makes sure that international students can benefit from their academic journey and succeed in a foreign academic setting.
